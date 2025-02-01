@@ -1,0 +1,1 @@
+# GhostX-Versao-Portugues
